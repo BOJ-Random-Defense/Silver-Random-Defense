@@ -7,7 +7,9 @@
 
 ( 25.02.13 ~ 25.02.20 ) !@sadang_mofun !@mean !@ch4302 !@dnpdhd !@jgh05168 !@juyeon08 %ko *s4..g5 s#500..
 
-( 25.02.20 ~ ) !@sadang_mofun !@mean !@ch4302 !@dnpdhd !@jgh05168 !@exzile_27 %ko *s4..g5 s#500..
+( 25.02.20 ~ 25.04.03 ) !@sadang_mofun !@mean !@ch4302 !@dnpdhd !@jgh05168 !@exzile_27 %ko *s4..g5 s#500..
+
+( 25.04.24 ~ ) !@sadang_mofun !@mean !@ch4302 !@jgh05168 !@exzile_27 %ko *s4..g5 s#500..
 
 실랜디 1회차 : 2025년 1월 23일 22:00 ~ 24:00
 
